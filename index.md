@@ -1,4 +1,4 @@
-# Welcome
+# Welcome to my info
 My name is Arun Ramanathan
 
 Instagram: Arun_Ramanathan
